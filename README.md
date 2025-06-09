@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do SHINAIDEV 😁
+## Bem-vindo(a) ao perfil do SHINAIDEV 🧛🏼
 
  <div>
    <a href="https://github.com/shinaidev">
